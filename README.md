@@ -1,2 +1,3 @@
-# SystemArchitectMind
-system architect mind map
+来源：B站Up主——青石竹屋。
+
+侵删。
